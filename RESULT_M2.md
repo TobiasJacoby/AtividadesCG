@@ -1,1 +1,1 @@
-![image](https://github.com/TobiasJacoby/AtividadesCG/assets/15348733/67d30beb-2c78-4ac7-830b-7fd9853a67f2)
+![image](https://github.com/TobiasJacoby/AtividadesCG/assets/15348733/3ddfc4c1-3a2a-4e85-8a24-f2670619fb55)
